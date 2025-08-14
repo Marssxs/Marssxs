@@ -2,3 +2,4 @@
 
 ✩ˊ DNI if you have a problem with my cosplays or if you want to mess around by either annoying me or my friends. 
 
+✩ˊ Interact anytime unless I'm AFK or talking with my friends, I don't appreciate getting chased around or constant boops if I'm not familiar with you. 
